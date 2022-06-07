@@ -8,6 +8,7 @@
 - Nickname Discord is ***Victoria (@victoria-shekel)***
 <br/>  
 <br/>
+
 ## **Education** ##
 - Baltic State Technical University - bachelor (2019)
 - Baltic State Technical University - magistracy (2021)  
