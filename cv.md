@@ -4,7 +4,7 @@
 ![new_avatar (5)](https://user-images.githubusercontent.com/102991917/206896949-68a48c6d-5904-48de-98ec-7ab9b8acc852.jpg "Photo of Victoria Shekel")
 
 ### Contacts
-* Victoria Shekel#9622 - Discord nickname
+* Victoria Shekel @victoria-shekel - Discord nickname
 * victoria.shekel@gmail.com - Email
 
 ### About me
